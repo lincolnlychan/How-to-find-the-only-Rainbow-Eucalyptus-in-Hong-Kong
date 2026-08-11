@@ -1,4 +1,3 @@
-# How-to-find-Rainbow-Eucalyptus-in-Hong-Kong-Disneyland
 #### by [Lincoln Chan](https://www.linkedin.com/in/lincoln-chan-0a5a60346/) 
 Rainbow Eucalyptus or Eucalyptus deglupta tree can be found near the only bridge and Artificial Waterfall in Inspiration Lake Recreation Centre, Hong Kong. 
 
