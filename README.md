@@ -1,4 +1,4 @@
-## How to find the only Rainbow Eucalyptus or Eucalyptus deglupta tree in Hong Kong?
+## [How to find the only Rainbow Eucalyptus or Eucalyptus deglupta tree in Hong Kong?](https://www.linkedin.com/posts/lincoln-chan-0a5a60346_how-to-find-the-only-rainbow-eucalyptus-or-share-7492957631427293184-hRSF/) 
 #### by [Lincoln Chan](https://www.linkedin.com/in/lincoln-chan-0a5a60346/) 
 Rainbow Eucalyptus or Eucalyptus deglupta tree can be found near the only bridge and Artificial Waterfall in Inspiration Lake Recreation Centre, Hong Kong. 
 
